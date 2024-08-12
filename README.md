@@ -42,17 +42,15 @@ My primary interest in cybersecurity stems from the challenge and importance of 
 **Internship at Al A'lamya for Cars Spare Parts and Service, Palestine (10/2018 - 02/2019)**  
 - Worked as a Mechanic Assistant, handling various machines, treating surfaces, and gaining practical experience in automotive mechanics.
 
-**Mechanic Assistant for Electric Scooters, Germany**  
-- Gained hands-on experience in the maintenance and repair of electric scooters.
-
-**Lieferando Driver**  
-- Managed deliveries efficiently, demonstrating time management and customer service skills.
-
-**Additional Work Experience**  
+## **Additional Work Experience**  
+- **Call Center Employee at DHL Express, Germany**: Provided customer support, handled inquiries, and resolved issues efficiently, demonstrating strong communication skills.  
+- **Responsible for the Refurbishment Department at Amazon, Germany**: Managed and oversaw the refurbishment process, ensuring quality control and efficient workflow.  
+- **Mechanic Assistant for Electric Scooters, Germany**: Gained hands-on experience in the maintenance and repair of electric scooters.  
+- **Lieferando Driver**: Managed deliveries efficiently, demonstrating time management and customer service skills.  
 - Gained diverse experience through various roles in warehouses, call centers, and retail, showcasing adaptability and a strong work ethic.
 
 ## **Contact**
 I am open to discussing new opportunities and collaborations. Feel free to contact me through the following channels:
 
 - **Email:** omartamimiobs@gmail.com
-- **LinkedIn:** https://www.linkedin.com/in/omar-al-tamimi-37457428a/
+- **LinkedIn:** [https://www.linkedin.com/in/omar-al-tamimi-37457428a/](https://www.linkedin.com/in/omar-al-tamimi-37457428a/)
