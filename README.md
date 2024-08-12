@@ -1,5 +1,5 @@
 # portfolio
-#My Cybersecurity and Engineering Portfolio
+
 # **Omar Al Tamimi - Mechatronics Engineering and Cybersecurity Portfolio**
 
 Welcome to my cybersecurity and engineering portfolio. I am a Mechatronics Engineering student at **Munich University of Applied Sciences** with a strong interest in cybersecurity. My academic background and hands-on experience in various jobs have equipped me with a unique blend of technical skills and resilience. This portfolio highlights my certifications, skills, and work experience in both engineering and cybersecurity.
